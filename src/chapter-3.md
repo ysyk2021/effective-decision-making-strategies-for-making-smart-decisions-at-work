@@ -1,5 +1,3 @@
-Chapter 3: Developing a Decision Making Mindset
-===============================================
 
 Developing a decision making mindset is essential for making informed decisions that contribute to personal and professional growth. In this chapter, we will discuss techniques for cultivating a decision-making mindset.
 

@@ -1,5 +1,3 @@
-Common Misconceptions About Decision Making
-====================================================================
 
 In "Effective Decision Making: Strategies For Making Smart Decisions At Work," we explore various strategies for making informed and effective decisions in the workplace. However, before diving into specific techniques, it is important to dispel common misconceptions about decision making. In this chapter, we will discuss some of these misconceptions.
 

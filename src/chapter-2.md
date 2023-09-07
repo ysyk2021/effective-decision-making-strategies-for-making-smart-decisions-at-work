@@ -1,5 +1,3 @@
-Chapter 2: Defining Effective Decision Making
-=============================================
 
 Effective decision making is a critical skill for personal and professional success. In this chapter, we will define effective decision making and discuss the science behind it.
 

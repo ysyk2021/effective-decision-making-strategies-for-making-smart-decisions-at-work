@@ -1,5 +1,3 @@
-Fostering Confidence and Resilience
-======================================================================================
 
 In "Effective Decision Making: Strategies For Making Smart Decisions At Work," we explore various strategies for making informed and effective decisions in the workplace. However, decision making can be a challenging and stressful process, particularly when faced with uncertainty and ambiguity. In this chapter, we will discuss how to maximize your decision making skills by fostering confidence and resilience.
 

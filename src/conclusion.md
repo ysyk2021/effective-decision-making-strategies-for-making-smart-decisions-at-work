@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Effective decision making is a critical skill that can significantly impact an individual's career and an organization's success. This book has provided readers with practical strategies and techniques to make informed decisions at work. The final chapter of this book will recap the key strategies for effective decision making and offer final thoughts and advice.
 

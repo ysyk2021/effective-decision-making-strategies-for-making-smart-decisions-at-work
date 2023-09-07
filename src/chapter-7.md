@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Effective Decision Making
-===========================================================
 
 Resistance to effective decision making can hinder progress and prevent individuals from achieving their goals. In this chapter, we will discuss how to manage resistance to effective decision making.
 

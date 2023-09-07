@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Effective decision making is a critical skill for success in the workplace. In this chapter, we will provide an introduction to the importance of effective decision making, common misconceptions about decision making, and the benefits of making smart decisions.
 

@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Decision Making Skills
-=================================================
 
 Effective decision making is a skill that can be developed and improved over time. In this chapter, we will discuss strategies for developing your decision-making skills so you can make smarter and more effective decisions at work.
 

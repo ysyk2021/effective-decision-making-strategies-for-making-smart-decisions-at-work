@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Decision Making Skills
-=================================================
 
 In this chapter, we will discuss ways to maximize your decision-making skills, so you can make smart and effective decisions at work.
 
@@ -24,5 +22,4 @@ Fostering Confidence and Resilience
 Making decisions can be stressful, especially if there is a lot at stake. To maximize your decision-making skills, it's important to foster confidence and resilience. This means having faith in your abilities and trusting yourself to make the right decisions. It also means being able to bounce back from setbacks and learn from your mistakes.
 
 By identifying opportunities, finding ways to make smart decisions, communicating effectively, and fostering confidence and resilience, you can maximize your decision-making skills and become a more effective leader in the workplace.
-
 

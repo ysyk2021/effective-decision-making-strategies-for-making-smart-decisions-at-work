@@ -1,4 +1,4 @@
-# Introduction
+
 
 Effective decision making is a critical skill in today's fast-paced and complex business environment. Whether you're a manager, executive, or employee, you're likely to face numerous decisions every day that can have a significant impact on your organization's success.
 
@@ -13,3 +13,7 @@ Whether you're looking to enhance your own decision-making skills or help others
 In the following chapters, we'll explore specific techniques for effective decision making, including identifying decision criteria, analyzing options, evaluating risks, and managing emotions. By the end of this book, you'll have a comprehensive toolkit for making smart decisions that drive organizational success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

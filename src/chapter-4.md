@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Effective Decision Making
-===============================================================
 
 Effective decision making is a critical component of success in both personal and professional life. In this chapter, we will discuss the power of effective decision making.
 
