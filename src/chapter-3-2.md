@@ -1,5 +1,4 @@
-Chapter 5: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the world of effective decision-making, the power of the mind plays a pivotal role. This chapter delves into the techniques of positive self-talk and visualization, offering insights into how these practices can elevate your decision-making skills in the workplace. By harnessing the potential of your thoughts and imagination, you can enhance your confidence, clarity, and overall effectiveness in making smart decisions.
 

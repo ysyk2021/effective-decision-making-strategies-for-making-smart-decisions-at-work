@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Principles of Effective Decision Making
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective decision making is a critical skill in the workplace, influencing both individual success and organizational outcomes. This chapter lays the foundation by exploring the fundamental principles that underpin the art of making smart decisions at work.
 

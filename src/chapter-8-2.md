@@ -1,5 +1,4 @@
-Chapter 15: Providing Training and Professional Development Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of effective decision-making at work, continuous learning and development are essential. This chapter delves into the significance of providing training and professional development opportunities to enhance decision-making skills and drive success in the workplace.
 

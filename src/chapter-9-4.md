@@ -1,5 +1,4 @@
-Chapter 9: Avoiding Information Overload
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced work environment, access to vast amounts of information can be both a blessing and a curse. This chapter explores the critical strategy of avoiding information overload to make smart decisions at work. By learning how to filter, prioritize, and manage the deluge of information, you can maintain clarity and improve your decision-making process.
 

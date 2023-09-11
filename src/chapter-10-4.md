@@ -1,5 +1,4 @@
-Chapter 12: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's dynamic work environment, adaptability is a key component of effective decision-making. This chapter explores the importance of adapting to changes in the workplace and provides strategies to navigate transitions successfully. By embracing change and making informed decisions during transitional phases, you can stay ahead in your career and contribute to the success of your organization.
 

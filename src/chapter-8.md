@@ -1,5 +1,4 @@
-Chapter 8: Creating a Culture of Effective Decision Making
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital aspects of fostering a culture of effective decision-making within your organization. Building such a culture not only benefits individual decision-makers but also contributes to the overall success of the organization. By encouraging proactive decision-making, providing training and development opportunities, fostering knowledge sharing, and celebrating achievements, you can establish a culture where smart decisions are the norm.
 

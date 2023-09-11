@@ -1,5 +1,4 @@
-Chapter 14: Celebrating Decision-Making Achievements
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of effective decision-making at work, it's essential to acknowledge and celebrate your achievements. This chapter explores the importance of celebrating decision-making achievements and how it can boost morale, motivation, and overall success in your professional endeavors.
 

@@ -1,5 +1,4 @@
-Chapter 8: Developing Empathy and Compassion through Decision Making
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Empathy and compassion are often underestimated but invaluable qualities in effective decision making at work. In this chapter, we explore how these qualities can be cultivated and integrated into the decision-making process for better outcomes and a more harmonious workplace.
 

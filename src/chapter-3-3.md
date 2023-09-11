@@ -1,5 +1,4 @@
-Chapter 4: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective decision-making in the workplace is closely tied to the ability to set realistic goals and objectives. Without clear and achievable targets, decisions can lack direction and purpose. In this chapter, we will explore the significance of setting realistic goals and objectives, and how doing so enhances your decision-making process for optimal outcomes.
 

@@ -1,5 +1,4 @@
-Chapter 1: Overview of Effective Decision Making
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the fast-paced and complex world of the modern workplace, effective decision making is a cornerstone of success. This chapter provides a comprehensive overview of the essential aspects of effective decision making, setting the stage for the strategies and techniques that will be explored in subsequent chapters.
 

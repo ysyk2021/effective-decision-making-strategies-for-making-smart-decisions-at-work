@@ -1,5 +1,4 @@
-Chapter 4: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of effective decision making, one of the most formidable barriers to success is the presence of limiting beliefs. These deeply ingrained convictions can hinder your ability to make smart decisions at work. This chapter explores the impact of limiting beliefs and provides strategies for overcoming them.
 

@@ -1,5 +1,4 @@
-Chapter 7: Continuous Learning and Improvement
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the ever-evolving landscape of the workplace, the pursuit of effective decision-making hinges on the commitment to continuous learning and improvement. This chapter delves into the importance of ongoing education and development as essential strategies for making smart decisions at work. By embracing a mindset of continuous growth, you can stay ahead of the curve and elevate your decision-making capabilities.
 

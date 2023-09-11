@@ -1,5 +1,4 @@
-Chapter 17: Encouraging Proactive Effective Decision Making Across the Organization
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective decision-making should not be confined to a few individuals or departments within an organization. This chapter emphasizes the importance of fostering a culture of proactive and effective decision-making that spans across all levels and functions of the organization.
 

@@ -1,5 +1,4 @@
-Chapter 5: Communicating Clearly and Effectively
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Clear and effective communication is at the heart of making smart decisions at work. In this chapter, we explore the critical role communication plays in the decision-making process and provide strategies to enhance your communication skills for better decision outcomes.
 

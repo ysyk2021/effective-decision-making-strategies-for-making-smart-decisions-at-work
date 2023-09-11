@@ -1,5 +1,4 @@
-Chapter 6: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of effective decision-making at work, fostering a growth mindset is a transformative strategy. This chapter explores the concept of a growth mindset and its profound impact on your ability to make smart decisions. By embracing this mindset, you can unlock your full potential, enhance your decision-making skills, and navigate the complexities of the workplace with confidence and resilience.
 

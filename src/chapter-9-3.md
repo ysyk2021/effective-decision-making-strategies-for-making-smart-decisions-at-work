@@ -1,5 +1,4 @@
-Chapter 13: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's diverse and inclusive workplaces, the ability to make smart decisions extends beyond the choices themselves. It also includes ensuring that decision-making processes are accessible to all and that a wide range of perspectives is considered. This chapter explores the importance of fostering accessibility and inclusivity in the decision-making process at work.
 

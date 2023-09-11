@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Personal Approach to Decision Making
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before delving into specific strategies and techniques for effective decision making, it's crucial to understand your own decision-making style and preferences. This chapter guides you through a self-assessment process to gain insight into your personal approach to decision making in the workplace.
 

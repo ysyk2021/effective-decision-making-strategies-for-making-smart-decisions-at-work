@@ -1,5 +1,4 @@
-Chapter 3: Developing Strategies for Making Smart Decisions
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of effective decision-making at work, it's essential to have a structured approach that helps you consistently make smart and well-informed choices. This chapter explores various strategies and methodologies that will empower you to enhance your decision-making capabilities and achieve better outcomes in your professional life.
 

@@ -1,5 +1,4 @@
-Chapter 3: Analyzing the Impact of Decision Making on Individuals and Organizations
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective decision making isn't just a solitary skill; it has profound implications for both individuals and the organizations they serve. This chapter delves into the multifaceted impact of decision making in the workplace, exploring how it influences personal and organizational success.
 

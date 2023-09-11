@@ -1,5 +1,4 @@
-Chapter 10: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Making smart decisions at work involves more than just the act of deciding; it also requires monitoring the outcomes and learning from them. This chapter delves into the critical strategy of tracking progress and measuring results. By implementing effective tracking and measurement processes, you can gain valuable insights, refine your decision-making strategies, and achieve greater success in the workplace.
 

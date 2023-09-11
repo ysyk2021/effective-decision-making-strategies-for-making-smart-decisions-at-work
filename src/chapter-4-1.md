@@ -1,5 +1,4 @@
-Chapter 2: The Benefits of Focusing on Effective Decision Making
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the dynamic and competitive environment of the workplace, effective decision making is a cornerstone of success. This chapter explores the numerous benefits that come from prioritizing and honing your decision-making skills in the professional context.
 

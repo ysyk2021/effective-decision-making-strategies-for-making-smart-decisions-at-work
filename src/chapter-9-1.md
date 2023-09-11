@@ -1,5 +1,4 @@
-Chapter 11: Identifying Decision-Making Technologies and Resources
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the digital age, decision-making at work is often facilitated and enhanced by various technologies and resources. This chapter explores the significance of identifying decision-making technologies and resources to streamline your decision-making process and make smarter choices. By staying informed about the tools and resources available, you can harness their potential to improve your decision-making skills.
 

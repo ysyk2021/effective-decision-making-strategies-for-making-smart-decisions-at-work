@@ -1,5 +1,4 @@
-Chapter 3: Addressing Fear and Uncertainty
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of effective decision-making, one of the most formidable obstacles that individuals encounter is the presence of fear and uncertainty. These emotions can paralyze us, hinder our ability to make rational choices, and ultimately lead to suboptimal decisions. This chapter will explore various strategies and techniques for addressing fear and uncertainty in the workplace, enabling you to make smarter decisions with confidence.
 

@@ -1,5 +1,4 @@
-Chapter 7: Finding Ways to Make Smart Decisions
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for effective decision making at work, it's crucial to have a toolkit of strategies to consistently make smart choices. This chapter explores various approaches and techniques that can guide you in making informed and intelligent decisions.
 

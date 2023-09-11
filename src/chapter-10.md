@@ -1,5 +1,4 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital aspects of measuring results and learning from experience in the context of effective decision-making at work. It's not enough to make decisions; it's equally important to assess their outcomes, reflect on your experiences, and use this information to make smarter decisions in the future.
 

@@ -1,5 +1,4 @@
-Chapter 9: Developing Strategies for Overcoming Resistance
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resistance to change and new decisions is a common challenge in the workplace. In this chapter, we will explore strategies for effectively addressing and overcoming resistance to ensure that your smart decisions are successfully implemented.
 

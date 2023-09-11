@@ -1,5 +1,4 @@
-Chapter 6: Identifying Common Sources of Resistance to Effective Decision Making
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of effective decision making at work, it's important to recognize and address the sources of resistance that can hinder progress. This chapter delves into common obstacles and sources of resistance that can impede the decision-making process.
 

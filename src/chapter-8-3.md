@@ -1,5 +1,4 @@
-Chapter 16: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective decision-making at work is greatly enhanced by fostering knowledge sharing and mentorship within an organization. This chapter explores the importance of creating a culture that encourages the exchange of knowledge and the guidance of experienced mentors.
 
